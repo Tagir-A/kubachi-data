@@ -9,4 +9,4 @@ This webpage aims to collect and preserve as much as possible about these people
 All media materials are collected and shown exclusively for educational and cultural purposes.
 If you want to complain about violation of copyright, contact me via kubachi@tagir-a.com
 
-
+By Obsidian
